@@ -1,0 +1,1 @@
+# GenetikAlgoritmaYapayZekaProje1Senaryo3
